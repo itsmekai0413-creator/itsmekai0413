@@ -38,4 +38,4 @@ i am karan .and i become creater
 
 ## Find Me
 
-[LinkedIn](https://linkedin.com/in/your-handle) · [Email](mailto:your-email@example.com)
+[LinkedIn](https://linkedin.com/in/your-handle) · [Email](itsmekai0413@gmail.com)
